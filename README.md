@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on minecraft/egealcraft
 - 📫 How to reach me antoniocarrubba958@gmail.com
 - 😄 Pronouns: they/them
-- ⚡ Fun fact: I'm 14 I have ADHD I also am autistic. 
+- ⚡ Fun fact: I'm 15 I have ADHD I also am autistic I also have mood swings, social anxiety, socially awkard, and im kind of dyslexic
 
 <!---
 Purpleman1987/Purpleman1987 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
